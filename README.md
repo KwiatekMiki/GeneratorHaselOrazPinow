@@ -1,0 +1,2 @@
+# GeneratorHaselOrazPinow
+polskie coś
